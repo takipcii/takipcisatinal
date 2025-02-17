@@ -1,10 +1,10 @@
-# 👑 Burnmedya – Prestij ve Kalite Bir Arada! 🌟  
+# 👑 BurnMedya – Prestij ve Kalite Bir Arada! 🌟  
 
-<a href="https://burnmedya.com/" title="Takipçi Satın Al" style="color: #228b22; font-size: 24px; font-weight: bold;">Burnmedya – Takipçi Satın Almak İçin Tıkla! 🌟</a>  
+<a href="https://burnmedya.com/" title="Takipçi Satın Al" style="color: #228b22; font-size: 24px; font-weight: bold;">BurnMedya – Takipçi Satın Almak İçin Tıkla! 🌟</a>  
 
-✨ **Burnmedya**, benzersiz fırsatlarla dolu bir platformdur!    
+✨ **BurnMedya**, benzersiz fırsatlarla dolu bir platformdur!    
 <img src="![17398291773378784238989763622107](https://github.com/user-attachments/assets/d34f3584-a18a-4f49-b87e-696a16448380)
-## 🎯 Burnmedya'nın Sunduğu Ayrıcalıklar  
+## 🎯 BurnMedya'nın Sunduğu Ayrıcalıklar  
 ✔️ **Hızlı ve güvenilir erişim!**  
 🎁 **Özel avantajlar ve yenilikler!**  
 ⚡ **Modern ve pratik kullanım!**  
