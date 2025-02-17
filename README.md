@@ -3,7 +3,7 @@
 <a href="https://burnmedya.com/" title="Takipçi Satın Al" style="color: #228b22; font-size: 24px; font-weight: bold;">BurnMedya – Takipçi Satın Almak İçin Tıkla! 🌟</a>  
 
 ✨ **BurnMedya**, benzersiz fırsatlarla dolu bir platformdur!    
-[17398291773378784238989763622107](https://github.com/user-attachments/assets/d34f3584-a18a-4f49-b87e-696a16448380)
+
 ## 🎯 BurnMedya'nın Sunduğu Ayrıcalıklar  
 ✔️ **Hızlı ve güvenilir erişim!**  
 🎁 **Özel avantajlar ve yenilikler!**  
