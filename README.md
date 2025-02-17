@@ -6,8 +6,6 @@
 
 <a href="https://burnmedya.com/" title="Takipçi Satın Al">  
 <img src="![17398291773378784238989763622107](https://github.com/user-attachments/assets/d34f3584-a18a-4f49-b87e-696a16448380)
-  " alt="Takipçi Satın Al" style="max-width: 100%; border: 3px solid #228b22; border-radius: 15px; box-shadow: 0px 0px 15px rgba(34, 139, 34, 0.8);">  
-</a>  
 
 ## 🎯 Burnmedya'nın Sunduğu Ayrıcalıklar  
 ✔️ **Hızlı ve güvenilir erişim!**  
