@@ -1,6 +1,6 @@
 # 👑 BurnMedya – Prestij ve Kalite Bir Arada! 🌟  
 
-<a href="https://burnmedya.com/" title="Takipçi Satın Al" style="color: #228b22; font-size: 24px; font-weight: bold;">BurnMedya – Takipçi Satın Almak İçin Tıkla! 🌟</a>  
+# <a href="https://burnmedya.com/" title="Takipçi Satın Al" style="color: #228b22; font-size: 24px; font-weight: bold;">BurnMedya – Takipçi Satın Almak İçin Tıkla! 🌟</a>  
 
 ✨ **BurnMedya**, benzersiz fırsatlarla dolu bir platformdur!    
 
